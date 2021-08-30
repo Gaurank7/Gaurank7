@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gaurank7
-- 👀 I’m interested in Coding
-- 🌱 I’m kind of professional learning Coding
+- 👀 I’m love Coding
+- 🌱 I’m kind of professional in Coding
 - 💞️ I’m looking to collaborate on my Projects
 - 📫 How to reach me? Via GMail on gaurankkumar21@gmail.com
 
