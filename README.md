@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gaurank7
+- 👋 Hi, I’m @Gaurank
 - 👀 I’m love Coding
 - 🌱 I’m kind of professional in Coding
 - 💞️ I’m looking to collaborate on my Projects
